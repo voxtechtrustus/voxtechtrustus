@@ -1,4 +1,4 @@
 ##      ≽^•⩊•^≼
-## <img width="935" height="935" alt="4b949bc1b67f9cbf7d959a2d7ca953b6" src="https://github.com/user-attachments/assets/b16fe3ff-e507-4dae-b52e-3d22487e5e4f" />
+## <img width="1147" height="1113" alt="sticker_1778434968999" src="https://github.com/user-attachments/assets/5088c93c-30b4-4acb-bf30-ff015aa08561" />
 
 
