@@ -1,4 +1,4 @@
 ##      ≽^•⩊•^≼
 ## <img width="1147" height="1113" alt="sticker_1778434968999" src="https://github.com/user-attachments/assets/5088c93c-30b4-4acb-bf30-ff015aa08561" />
-## ![voxes](https://komarev.com/ghpvc/?username=voxtechtrustus)
+## ![voxes](https://komarev.com/ghpvc/?username=voxtechtrustus) color=<CYAN>
 
