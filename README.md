@@ -1,2 +1,2 @@
 ## <img width="1147" height="1113" alt="sticker_1778434968999" src="https://github.com/user-attachments/assets/5088c93c-30b4-4acb-bf30-ff015aa08561" />
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=1053&color=F73664&center=true&width=435&lines=as+long+as+i+wipe+that+smile+off;Alastors+fucking+face+...;i+dont+care+what+happens.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bitcount+Single&duration=2000&pause=203&color=F73B48&width=435&lines=%22+Uh%2C+I'm+the+face%3F;+The+face+of+the+revolution%2C;+where+the+fuck+have+you+been%3F+%22)](https://git.io/typing-svg)
