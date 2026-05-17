@@ -3,4 +3,4 @@
 <p align="center">
 $\color{#56bfad}{\text{helow welcome check my straw for more and sign my ata pls!! ok bye i donthave anything else to say}}$
 </p>
-<img width="198" height="112" alt="stamp_1778999564_666eb4b94ae44e1c99f13fdd1b766a64" src="https://github.com/user-attachments/assets/4783c474-0029-4ef7-b99b-300819829cf9" />
+<img width="396" height="224" alt="image" src="https://github.com/user-attachments/assets/8c95e06c-9047-4198-aa41-5b096be07e6c" />
