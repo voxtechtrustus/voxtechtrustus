@@ -6,5 +6,5 @@ and sign my ata pls!! ok bye i donthave anything else to say}}$
 </p>
 <img width="198" height="112" alt="image (2)" src="https://github.com/user-attachments/assets/b8dab85c-9a26-494b-8420-c836047c2d05" />
 <p align="center">
-<img width="374" height="211" alt="vox-hazbin-hotel" src="https://github.com/user-attachments/assets/ad16a4be-815d-4169-82c3-0618b731bce8" />
+<img width="498" height="281" alt="d94ed5fdc26ee9b5dd7c11f0394d8a93" src="https://github.com/user-attachments/assets/780649e1-5286-4823-8cd6-5667a9cd1a03" />
 </p>
