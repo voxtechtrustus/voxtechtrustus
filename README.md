@@ -5,3 +5,6 @@ $\color{#56bfad}{\text{helow welcome check my straw for more info
 and sign my ata pls!! ok bye i donthave anything else to say}}$
 </p>
 <img width="198" height="112" alt="image (2)" src="https://github.com/user-attachments/assets/b8dab85c-9a26-494b-8420-c836047c2d05" />
+<p align="center">
+<img width="374" height="211" alt="vox-hazbin-hotel" src="https://github.com/user-attachments/assets/ad16a4be-815d-4169-82c3-0618b731bce8" />
+</p>
