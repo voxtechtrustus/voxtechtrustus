@@ -8,5 +8,5 @@ and sign my ata pls!! ok bye i donthave anything else to say
 </p>
 <img width="198" height="112" alt="image (2)" src="https://github.com/user-attachments/assets/b8dab85c-9a26-494b-8420-c836047c2d05"<img width="20" height="20" alt="41a7b790" src="https://github.com/user-attachments/assets/1f4bc96d-ba51-414e-881e-09633b84ebee" /><img width="20" height="20" alt="38a20c1d" src="https://github.com/user-attachments/assets/68fccd4a-bbbf-443f-a613-a704972a077e" />
 <p align="center">
-<img width="498" height="281" alt="d94ed5fdc26ee9b5dd7c11f0394d8a93" src="https://github.com/user-attachments/assets/780649e1-5286-4823-8cd6-5667a9cd1a03" />
+<img width="498" height="366" alt="41ecaa2c14eb51a144c9cae56e3d2f29" src="https://github.com/user-attachments/assets/e8f76e7c-7a8b-4c2c-bc4b-176155c28fd0" />
 </p>
