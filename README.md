@@ -2,9 +2,8 @@
 ## <img width="1147" height="1113" alt="sticker_1778434968999" src="https://github.com/user-attachments/assets/5088c93c-30b4-4acb-bf30-ff015aa08561" />
 <p align="center">
 $\color{#56bfad}{\text{helow welcome check my straw for more info
-and sign my ata pls!! ok bye i donthave anything else to say />
+and sign my ata pls!! ok bye i donthave anything else to say
 }}$<img width="20" height="20" alt="41a7b790" src="https://github.com/user-attachments/assets/42d476af-5808-4dff-90fc-8a49a3e152e4" />
-
 </p>
 <img width="198" height="112" alt="image (2)" src="https://github.com/user-attachments/assets/b8dab85c-9a26-494b-8420-c836047c2d05"<img width="20" height="20" alt="41a7b790" src="https://github.com/user-attachments/assets/1f4bc96d-ba51-414e-881e-09633b84ebee" />
  />
