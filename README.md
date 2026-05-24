@@ -2,9 +2,11 @@
 ## <img width="1147" height="1113" alt="sticker_1778434968999" src="https://github.com/user-attachments/assets/5088c93c-30b4-4acb-bf30-ff015aa08561" />
 <p align="center">
 $\color{#56bfad}{\text{helow welcome check my straw for more info
-and sign my ata pls!! ok bye i donthave anything else to say}}$
+and sign my ata pls!! ok bye i donthave anything else to say<img width="20" height="20" alt="38a20c1d" src="https://github.com/user-attachments/assets/b6a59edd-ed2b-40c7-9f2a-f0da435fb18c" />
+}}$
 </p>
-<img width="198" height="112" alt="image (2)" src="https://github.com/user-attachments/assets/b8dab85c-9a26-494b-8420-c836047c2d05" />
+<img width="198" height="112" alt="image (2)" src="https://github.com/user-attachments/assets/b8dab85c-9a26-494b-8420-c836047c2d05"<img width="20" height="20" alt="41a7b790" src="https://github.com/user-attachments/assets/1f4bc96d-ba51-414e-881e-09633b84ebee" />
+ />
 <p align="center">
 <img width="498" height="281" alt="d94ed5fdc26ee9b5dd7c11f0394d8a93" src="https://github.com/user-attachments/assets/780649e1-5286-4823-8cd6-5667a9cd1a03" />
 </p>
