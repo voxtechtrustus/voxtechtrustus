@@ -7,6 +7,6 @@ and sign my ata pls!! ok bye i donthave anything else to say
 }}$<img width="20" height="20" alt="38a20c1d" src="https://github.com/user-attachments/assets/112d0674-37a8-4e0d-b387-197d2efbbe73" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tbvfnulbfypekkf5ggboatdkza&cover_image=true&theme=default&show_offline=false&background_color=5d5b71&interchange=false&profanity=false&hide_remaster=false&bar_color=5f768c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
-<p align="center">
+<p align="right">
 <img width="198" height="112" alt="stamp_1779710290_bb168fd94e484ff9896aed772175ac5e" src="https://github.com/user-attachments/assets/752bd551-89e2-44f6-93ee-2b4b46dfc2f0" />
 </p>
